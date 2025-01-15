@@ -1,2 +1,2 @@
 # Ziyan-Yang
-My personal repository
+Computer Science at USC Viterbi
