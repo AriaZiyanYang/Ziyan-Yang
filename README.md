@@ -1,2 +1,2 @@
 # Ziyan-Yang
-Computer Science at USC Viterbi
+🥰 Master of Computer Science at USC🥰
